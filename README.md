@@ -5,5 +5,5 @@ This repo contain the code snippet of the question which I felt are important in
 Check out the youtube channel for solutions.
 
 Check for City Coder on youtube.
-Do like it>>>
-14 Videos uploaded till now.
+Stay updated with amazing way of solving same questions there.
+if you like it do subcribe.
