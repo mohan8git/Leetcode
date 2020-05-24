@@ -7,3 +7,5 @@ Check out the youtube channel for solutions.
 Check for City Coder on youtube.
 Stay updated with amazing way of solving same questions there.
 if you like it do subcribe.
+
+new video on sunday.tuesday.thursday.saturday.
