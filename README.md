@@ -15,5 +15,7 @@ Please do join whatsapp group.
 Link:
 Youtube.com/citycoder
 
+Dont miss the contest at any cost it improves your thinking skills.
+
 ----------------------------------------------------------------------------------------
 
